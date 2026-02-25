@@ -1,0 +1,1 @@
+-on utilise une barre de palladium
